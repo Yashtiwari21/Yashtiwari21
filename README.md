@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Yashtiwari
 - 👀 I’m interested in coding.
-- 🌱 Currently I'm working at Techpile Technology Pvt. Ltd. As a Intern As a Android Developer.
+- 🌱 Currently I'm working as an iOS Developer in Mobiloitte India Pvt. Ltd.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - Through my website and Instagram.
 
